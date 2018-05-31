@@ -1,2 +1,1 @@
 falana thikana
-yo
